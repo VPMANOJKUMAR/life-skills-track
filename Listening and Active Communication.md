@@ -22,13 +22,13 @@ I feel like not focusing too much on what people speaking about any topic and I 
  ### What can you do to improve your listening?
  When you are listening to someone talk, you should avoid looking out a window, texting or scrolling through your phone, or scanning a computer screen. Limit any unnecessary distractions, provide the speaker with your undivided attention, and make an effort to look at them.Try to conjure up mental images of what the speaker is talking about while you are listening to help retain information. This may be a literal picture or other concepts that relate to the topic.You may not understand everything someone says to you. It is best to wait until they pause to ask them to back up and provide clarification for the topic or phrase you misunderstood.
  ## 4. Types of Communication
-### + Passive Communication
++ ### Passive Communication
 Individuals who use the passive communication style often act indifferently, yielding to others. Passive communicators usually fail to express their feelings or needs, allowing others to express themselves.
-### + Aggressive Communication
++ ### Aggressive Communication
 Expressing feelings, needs, and ideas at the expense of others; ignoring others' rights in order to support your own. Defensive or hostile when confronted by others. Often alienates and hurts others.
-### + Passive Aggressive Communication
++ ###  Passive Aggressive Communication
 Passive-aggressive behavior is a pattern of indirectly expressing negative feelings instead of openly addressing them. There's a disconnect between what a person who exhibits passive-aggressive behavior says and what he or she does.
-### + Assertive Communication
++ ###  Assertive Communication
 expressing your point of view in a way that is clear and direct, while still respecting others. Communicating in an assertive manner can help you to: minimise conflict. control anger.
 ### when do you switch to Passive communication style in your day to day life?
 whenever someone talks badly about me in front of me which is even not correct still I did not get into communicating what is he saying wrong. I still keep mum and do not respond to him. I wanted to get into  that conversation but my mind feels like just leaving it.
